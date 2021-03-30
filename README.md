@@ -29,7 +29,7 @@ But to just make it more clear here are my current favourites
 
 Well I place myself somewhere surely above a bathroom singer but not confident enough for a public audience)
 
-**Gaming (No I am not a pro but the race is still on)
+**Gaming** (No I am not a pro but the race is still on)
 
 And here are few which now takes a back-seat
 
